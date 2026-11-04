@@ -1,1 +1,0 @@
-# wiimocamp-space02
